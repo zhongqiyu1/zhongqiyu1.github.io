@@ -2,7 +2,7 @@
 
 [![zhongqiyu1](https://img.shields.io/badge/zhongqiyu1-github-blue?logo=github)](https://github.com/zhongqiyu1)
 
-He is currently a RA at HKUST (GZ).
+I am a third-year graduate student at Beijing University of Technology. I am fortunate to be supervised by Prof. [[Gengyu Lyu]](https://gengyulyu.github.io/homepage/) and Prof. [[Zhen Yang]](http://www.dmslab.cn/?page_id=129). I am currently a RA at HKUST (GZ).
 
 #### Contact
 

@@ -2,9 +2,9 @@
 
 - National Scholarship for Graduate Student, 2024.
 
-- First-Prize Scholarship (BJUT), 2024.
+- First-Prize Scholarship for Graduate Student (BJUT), 2024.
 
-- First-Prize Scholarship (BJUT), 2023.
+- First-Prize Scholarship for Graduate Student (BJUT), 2023.
 
 - First-Prize Scholarship (BJUT), 2022.
 
